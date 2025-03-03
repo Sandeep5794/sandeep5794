@@ -61,7 +61,7 @@ I love crafting **smooth and intuitive user experiences**, writing **clean code*
 ---
 
 ## 📫 Let's Connect!  
-🔗 [LinkedIn](#) | 🔗 [GitHub](#) | 📧 ui.spaul07@gmail.com  
+🔗 [[LinkedIn](#)](https://www.linkedin.com/in/sandeep-kumar-065a43a7/) | 🔗 [[GitHub](#)](https://github.com/Sandeep5794) | 📧 ui.spaul07@gmail.com  
 
 ---
 
